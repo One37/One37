@@ -1,0 +1,3 @@
+- 👋 Hi hi! I’m @One37
+- 👀 I’m interested in Games Development + NFT's Fusion
+- Looking forward to sharing more :)
